@@ -1,2 +1,2 @@
 # Tur-Sitesi
-![Tur-Sitesi[(https://1drv.ms/i/s!Ar2Up9clL6UzjhEEvR9rJe1q_6Td?e=wPcjTg)
+![Tur-Sitesi[(https://github.com/eliftugull/https://1drv.ms/v/s!Ar2Up9clL6UzjhLrj5V43Vt9I_eV?e=mOxBMf)
